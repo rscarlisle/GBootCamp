@@ -1,1 +1,1 @@
-GLEN PAGODA IS HERE!# GBootCamp
+GLEN IS HERE!# GBootCamp
